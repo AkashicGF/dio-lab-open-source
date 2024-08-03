@@ -1,6 +1,6 @@
 # Vitor Gabriel Da Silva Souza
 
-Formado em Análise e Desenvolvimento de Sistesmas, buscando me desenvolver cada vez mais e atrás de desafios e oportunidades.
+Formado em Análise e Desenvolvimento de Sistesmas, buscando me desenvolver cada vez mais e atrás de desafios e oportunidades"
 
 ### Conecte-se comigo
 
